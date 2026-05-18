@@ -1,2 +1,2 @@
 # Лабораторна робота No5
-## [Відео захисту](посилання_на_відео)
+## [https://drive.google.com/file/d/1RrZszPNyOz75BbU2CBc4wf5yGbUzurek/view?usp=sharing)
